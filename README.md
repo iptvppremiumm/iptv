@@ -1,2 +1,2 @@
-# https://iptv.github.io
+# https://iptvppremiumm.github.io/iptv/
 IPTV PREMIUM
